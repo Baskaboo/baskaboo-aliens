@@ -7,6 +7,8 @@ Following the historic official disclosure and declassification of government do
 
 As humanity scrambles to understand the geopolitical and exopolitical implications of this new reality, conventional analysis falls short. The core question of this file is: **Can the Baskaboo Framework serve as the ultimate Cosmic Operating System to decode their behavior? Can it tell us more than what is currently known?** By utilizing the objective, independent analytical capabilities of the world's most advanced AI models, we aim to verify if Baskaboo's algebraic equilibrium can accurately simulate, predict, and explain the hidden dynamics of these 4 cosmic forces.
 
+> **Epistemological Note:** This document applies Baskaboo as a **structural analogical system**. Its application to extraterrestrial civilizations is a **thought experiment and a tool for pattern recognition**, not a statement of empirical fact. The framework's internal consistency does not guarantee external correspondence.
+
 ---
 
 Act as an expert Systems Auditor and Archetypal Theorist. Proceed with an unconditional, objective "Independent AI Systems Audit / Fresh Window Analysis".
